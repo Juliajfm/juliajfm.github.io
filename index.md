@@ -11,3 +11,5 @@ Siddartha sinniert:
 > Wo ist der Samana Siddhartha? 
 > Wo ist der Reiche Siddhartha? 
 > Schnell wechselt das Vergängliche, Govinda, du weißt es.
+
+<img src="https://de.wikipedia.org/wiki/Datei:Buddha_Kopf.jpg" />
