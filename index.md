@@ -12,4 +12,4 @@ Siddartha sinniert:
 > Wo ist der Reiche Siddhartha? 
 > Schnell wechselt das Vergängliche, Govinda, du weißt es.
 
-<img src="https://de.wikipedia.org/wiki/Siddhartha_(Hermann_Hesse)#/media/Datei:Buddha_Kopf.jpg"/>
+<img src="https://commons.wikimedia.org/wiki/File:Buddha_Kopf.jpg#/media/Datei:Buddha_Kopf.jpg"/>
