@@ -5,3 +5,9 @@ Siddhartha ist ein junger Brahmane. Von seinem Vater und anderen Priestern lernt
 * suchend
 * freundschaftlich
 * exerimentiertfreudig
+
+Siddartha sinniert:
+> Wo ist der Brahmane Siddhartha? 
+> Wo ist der Samana Siddhartha? 
+> Wo ist der Reiche Siddhartha? 
+> Schnell wechselt das Vergängliche, Govinda, du weißt es.
